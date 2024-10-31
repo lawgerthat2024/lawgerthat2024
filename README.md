@@ -1,3 +1,3 @@
 # lawgerthat2024
-[Click here to access the file on Google Drive](https://drive.google.com/drive/u/3/folders/1Efpw_MnePHAiQ__eDGcRN8FzPuFI-Ns3)
+[라저댓의 스티커를 다운받으려면 여기를 클릭해주세요!](https://drive.google.com/drive/u/3/folders/1Efpw_MnePHAiQ__eDGcRN8FzPuFI-Ns3)
 
